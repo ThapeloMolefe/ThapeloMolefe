@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ThapeloMolefe but you can call me Skitt!
 - 👀 I’m interested in gaming.Yes! as old as i am,i game
 - 🌱 I’m currently learning something not so easy but exciting. 
-- 💞️ I’m looking to collaborate on haha! nothing actually
+- 💞️ I’m looking to collaborate on...haha! nothing actually but i'll communicated with time if something comes up ofcourse.
 - 📫 You can follow me up on my instagtram @what_the_fuck_ski
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
